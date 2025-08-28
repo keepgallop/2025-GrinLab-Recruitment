@@ -1,2 +1,2 @@
 # 2025-GrinLab-Recruitment
-![](ad.jpg)
+![](ad-new.jpg)
